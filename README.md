@@ -1,0 +1,2 @@
+# novaldareva
+Belajar Bareng Noval
